@@ -1,2 +1,2 @@
-# BlayneG03.github.io
+# BGriffin.github.io
 Website for Blayne Griffin
